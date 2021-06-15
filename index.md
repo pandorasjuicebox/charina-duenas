@@ -1,5 +1,5 @@
 # **Charina Duenas** 
-##### duenasc@myumanitoba.ca | https://github.com/pandorasjuicebox 
+##### [E-Mail](mailto:charinaduenas@gmail.com) | [GitHub](https://github.com/pandorasjuicebox) | [Carrd](https://charinaduenas.carrd.co) 
 
 ----
 
